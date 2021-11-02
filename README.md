@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @doomercy
-- 👀 I’m interested in watching porn
+- 👀 I’m interested in watching movie
+- 
 - 🌱 I’m currently learning Japanese
 - 💞️ I’m looking to collaborate on girlfriend
 - 📫 How to reach me come to my house
